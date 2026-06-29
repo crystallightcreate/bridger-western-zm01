@@ -1,4 +1,4 @@
-# 
+# stealth bridger western Script is the best bridger western Script, featuring teleport and unlimited stamina. Safe and powerful for all your needs.
 
 
 
